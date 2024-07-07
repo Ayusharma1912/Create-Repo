@@ -5,5 +5,3 @@ sdjcksa
 kjcdsjdu
 ncdksa
 jfeewoa
-fijeoa
-isojfipj
